@@ -6,8 +6,8 @@
 * Petite Frites
 
 ## Maxime Dubé
-
-## Nicolas Lacombe
+* Grosse poutine
+* 1 hot-dog all-dressed
 
 ## Keven Philibert
 * 2 Steamers hot-dog all-dress
