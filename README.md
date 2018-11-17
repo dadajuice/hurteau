@@ -6,6 +6,8 @@
 * Petite Frites
 
 ## Maxime Dubé
+* Grosse poutine
+* 1 hot-dog all-dressed
 
 ## Nicolas Lacombe
 
