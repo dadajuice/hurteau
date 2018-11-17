@@ -1,6 +1,9 @@
 # Commandes Hurteau
 
 ## Émilie Bornard
+* Cheese burger (mayo, ketchup, moutarde, relish, salade)
+* Croquettes
+* Petite Frites
 
 ## Maxime Dubé
 
