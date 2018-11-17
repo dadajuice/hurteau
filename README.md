@@ -6,8 +6,6 @@
 * Petite Frites
 
 ## Maxime Dubé
-* Grosse poutine
-* 1 hot-dog all-dressed
 
 ## Nicolas Lacombe
 
@@ -18,7 +16,8 @@
 ## Olivier Hébert
 
 ## David Tucker
-* 2 Steamers moutarde-choux (extra fromage en grain)
-* 1 Petite poutine SAUCE À PART
+* 2 Steamers moutarde-choux (extra fromage en grain)* 1 Petite poutine SAUCE À PART
 
-## Anne-Sophie Bornard
+## Nicolas Lacombe
+* 1 Grosse poutine
+* 2 Steamers hotdogs ketchup
