@@ -1,4 +1,5 @@
 # Commandes Hurteau
+Tel.: (450) 743-5088
 
 ## Émilie Bornard
 * Cheese burger (mayo, ketchup, moutarde, relish, salade)
